@@ -3,8 +3,8 @@
 - 🌱 I’m currently learning Web designing.
 - 💞️ I’m looking to collaborate.....
 - 📫 How to reach me ..
-     Telegram :- @pk7027
-Check out :- https:links4job.blogspot.com
+     Telegram :- https://t.me/king_pk
+Check out :- https:filmyhud.blogspot.com
 
 <!---
 Pradeepnagal/Pradeepnagal is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
